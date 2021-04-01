@@ -1,0 +1,4 @@
+-  Hi, I’m @joaoluz2000
+- Dev front/ back-end.
+- Busco por oportunidade na área.
+- Estou aqui para obter conhecimentos práticos do dia/dia e auxiliar em que estiver ao meu alcance.
